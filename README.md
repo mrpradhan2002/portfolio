@@ -18,5 +18,16 @@ I am SABYA SACHI PRADHAN, a highly motivated and results-driven individual with 
 - Board of Intermediate Education, under SRI GAYATRI JR COLLEGE, Hyderabad.
 - Board of Secondary Education, under ST MARY'S GRAMMAR HIGH SCHOOL, Hyderabad.
 
-  ## Resume
+## Resume
 [SABYA SACHI PRADHAN's Resume](...)
+
+## Seeking Opportunities 🌟
+
+I am currently seeking summer internships in Cyber Defense domains at reputed organizations. I am eager to apply my skills and experiences to innovative projects and make meaningful contributions to the cybersecurity landscape.
+
+## Connect with Me 📧
+
+Feel free to reach out to me via email at sabyasachipradhan9010@gmail.com or connect with me on LinkedIn at https://www.linkedin.com/in/sabya-sachi-pradhan-904407218/ for further discussion and collaboration opportunities.
+
+Let's innovate and secure the future together!
+
